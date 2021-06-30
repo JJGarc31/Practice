@@ -1,1 +1,7 @@
-# Practice
+# Practice &&&&&&Linux herer%%%%%%%
+
+
+
+
+
+&&&&&&linux end &&&&&&&&&&
